@@ -35,4 +35,6 @@ Sustainable Development Goals 14: "CONSERVE AND SUSTAINABLY USE THE OCEANS, SEAS
 
 # Conclusion
 
+<img src="Healthy_marine_Ecosys.jpeg" width= "auto" height= "auto">
+
   This study will provide you with a useful, and mapped graph of the information to help you better understand the protected coverage of marine areas in the Philippines. By achieving the study's goal, ocean life has been diminishing globally due to overfishing, habitat damage, and climate change. Despite this, only 7% of the ocean is currently protected. A sensible ocean protection strategy will contribute to more abundant seafood while also providing a low-cost, natural response to climate change, as well as economic benefits. A cleaner ocean would benefit both humanity and the economy. When countries act together to safeguard at least 30% of the ocean, the advantages are felt sooner. Philippine coral reefs are essential to the health of coastal and marine ecosystems due to the fact that they support a variety of species and provide food, protection, and unique habitats. Unless immediate action is taken to restore corals, degradation and depletion of marine biodiversity will be inevitable.
